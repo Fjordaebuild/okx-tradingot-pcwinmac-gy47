@@ -1,4 +1,4 @@
-# 
+# Profesional okx trading bot flujo de trabajo for Mac OS | Premium okx trading bot flujo de trabajo for PC Windows. Featuring estrategia de reversión a la media and análisis de momento — optimized for maximum performance.
 
 
 
